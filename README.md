@@ -1,4 +1,4 @@
-Name and Roll Number: [Your Name] - [Your Roll Number]
+Name and Roll Number: [Muskan Shakeel] - [70172575]
 
 Store Theme: ShopEasy — Online Shopping Store
 
